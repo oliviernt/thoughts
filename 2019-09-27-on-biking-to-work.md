@@ -30,7 +30,7 @@ I truly now love riding my bike. We have recently moved to our new place which i
 
 Before I leave you with my closing lines, I have to thank my wife!
 
-She's been incredibly supportive of my plan and has not once complained or been grumpy because it takes me longer to get home or anything like that.
+She's been incredibly supportive of my plan from the beginning up to now with no exception!
 
 To you, Irene: thank you!
 
